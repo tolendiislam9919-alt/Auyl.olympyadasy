@@ -1,0 +1,2 @@
+# Auyl.olympyadasy
+Auyl.olympyadasy
